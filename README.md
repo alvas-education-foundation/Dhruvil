@@ -1,1 +1,1 @@
-# Dhruvil
+# Certification course and coding updates
